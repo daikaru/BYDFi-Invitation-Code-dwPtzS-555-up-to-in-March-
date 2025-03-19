@@ -1,2 +1,2 @@
-# BYDFi-Invitation-Code-dwPtzS-555-up-to-in-March-
+# BYDFi Invitation Code: dwPtzS (555$ up to-in March)
 EXCLUSIVE: use  "dwPtzS" get 10% discount on all trading fees for your first 30 days, and 10% cash back on your net deposit, ...
